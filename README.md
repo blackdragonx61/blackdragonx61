@@ -9,4 +9,4 @@
 - [Inforge](https://www.inforge.net/forum/members/blackdragonx61.287889/)
 - [Metin2DEV](https://metin2.dev/profile/14335-mali/) (Most Active)
 - [Metin2Downloads](https://www.metin2downloads.to/cms/user/25213-blackdragonx61/)
-- [Youtube](youtube.com/blackdragonx61)
+- [Youtube](https://www.youtube.com/blackdragonx61/)
